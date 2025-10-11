@@ -4,12 +4,11 @@
 
 
 
-         this is mostly for ponytown ok? 
+         
 ![image alt](https://github.com/Americxne-101/Americxne-101/blob/41c92412dd23ec2e0f62916d4d60a00bec45adbd/tumblr_pw9859VfCE1xbgu08o6_100.gif)
 
 
+still learning this app!
+   please whisper tips ingame.. (ponytown)
 
-finally figured this shit out..
-
-
-but its a bit bad ok?
+    
