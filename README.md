@@ -1,5 +1,5 @@
 # Welcome !!
-![image alt](https://github.com/Americxne-101/Americxne-101/blob/a70dd3696ca05049a2ec6de28592adc2d7a40e49/a7b39a453e31cc90bf52b2d9f1162ddd.jpg)
+![image alt](https://github.com/Americxne-101/Americxne-101/blob/127b4190ca18a0a7c9c002f98751cbc0a10e057d/ade8151ed4c1aaf1a57e37c40ab69fca.gif)
 
  i fllw anyone who fllws me !
   _push_your_temper_.
