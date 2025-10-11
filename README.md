@@ -1,3 +1,8 @@
+# Welcome !!
+![image alt](https://github.com/Americxne-101/Americxne-101/blob/1d1e8945cd5542ba3624c578646e9c457f5681fb/6236ba88db92e4e75d2356029059f911.gif)
+
+
+
 Currently working on an animation!
  i encorage c+h , unless said other wise ! you'll either find me sitting by myself or with Dragon Plays!
 
