@@ -2,6 +2,15 @@
 ![image alt](https://github.com/Americxne-101/Americxne-101/blob/1d1e8945cd5542ba3624c578646e9c457f5681fb/6236ba88db92e4e75d2356029059f911.gif)
 
 
+     
+
+
+
+   ![image alt](https://github.com/Americxne-101/Americxne-101/blob/add1ea0b46a20a27575eea11426c6845ded2c089/Untitled433_20251011094052.png)
+
+
+
+
 
 Currently working on an animation!
  i encorage c+h , unless said other wise ! you'll either find me sitting by myself or with Dragon Plays!
@@ -18,6 +27,13 @@ still learning this app! lol ..
 
    
 ![image alt](https://github.com/Americxne-101/Americxne-101/blob/0dc4bf41e5233c1a7766d1a919a45ea4d70b352f/f69e78305c46bc2bc048cf5bb3c8d66c.gif)
+
+
+
+
+
+
+
 
 
 guys ..
