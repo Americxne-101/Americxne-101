@@ -35,5 +35,7 @@ still learning this app! lol ..
 
 
 
-guys ..
+guys .. i think ..
 ![image alt](https://github.com/Americxne-101/Americxne-101/blob/a70dd3696ca05049a2ec6de28592adc2d7a40e49/a7b39a453e31cc90bf52b2d9f1162ddd.jpg)
+
+  *awww you stayed! thanks for reading!*
