@@ -1,9 +1,8 @@
 # Welcome !!
-![image alt](https://github.com/Americxne-101/Americxne-101/blob/1d1e8945cd5542ba3624c578646e9c457f5681fb/6236ba88db92e4e75d2356029059f911.gif)
+![image alt](https://github.com/Americxne-101/Americxne-101/blob/a70dd3696ca05049a2ec6de28592adc2d7a40e49/a7b39a453e31cc90bf52b2d9f1162ddd.jpg)
 
-
-
-
+ i fllw anyone who fllws me !
+  _push_your_temper_.
 
    ![image alt](https://github.com/Americxne-101/Americxne-101/blob/41c92412dd23ec2e0f62916d4d60a00bec45adbd/tumblr_pw9859VfCE1xbgu08o6_100.gif)
 
@@ -27,9 +26,9 @@ still learning this app! lol ..
    
 ![image alt](https://github.com/Americxne-101/Americxne-101/blob/0dc4bf41e5233c1a7766d1a919a45ea4d70b352f/f69e78305c46bc2bc048cf5bb3c8d66c.gif)
 
+ mmm icecream ...
 
-
-
+   _Currently at the beach!_
 
 
 
