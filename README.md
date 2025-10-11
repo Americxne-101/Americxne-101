@@ -28,7 +28,8 @@ still learning this app! lol ..
 
  mmm icecream ...
 
-   _Currently at the beach!_
+   check out my pinterest!
+  [image alt](https://pin.it/6n62aM7YG)
 
 
 
