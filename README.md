@@ -2,11 +2,10 @@
 ![image alt](https://github.com/Americxne-101/Americxne-101/blob/1d1e8945cd5542ba3624c578646e9c457f5681fb/6236ba88db92e4e75d2356029059f911.gif)
 
 
-     
 
 
 
-   ![image alt](https://github.com/Americxne-101/Americxne-101/blob/add1ea0b46a20a27575eea11426c6845ded2c089/Untitled433_20251011094052.png)
+   ![image alt](https://github.com/Americxne-101/Americxne-101/blob/a03ce0486234d6a4a6998423c87a959dc4338004/tumblr_pw9859VfCE1xbgu08o7_100.gif)
 
 
 
