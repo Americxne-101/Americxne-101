@@ -1,4 +1,5 @@
 # Welcome !!
+![image alt](https://github.com/Americxne-101/Americxne-101/blob/2a119f10717e81280335ab30243aaf6f90f50115/Untitled450_20251018164356.png)
 ![image alt](https://github.com/Americxne-101/Americxne-101/blob/d6b80edd3bedd9fe269b518a422c29e9c6fb759d/Untitled450_20251018165402.png)
 
  i fllw anyone who fllws me !
