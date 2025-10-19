@@ -15,8 +15,8 @@ I love writing and reading fanfics !! send me some if u have plss ^^
 
 
 i love mindless self indulgence..
- kin: Stocking (from 👇)
-   hyperfixation : PASWG
+ kin: 1# Stocking (PAWG)
+      2# Gourdy (Dandys World)
 
 
 still learning this app! lol ..
