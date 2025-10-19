@@ -4,10 +4,10 @@
  i fllw anyone who fllws me !
   _i_wanna_be_alone_.
 
-   ![image alt](https://github.com/Americxne-101/Americxne-101/blob/41c92412dd23ec2e0f62916d4d60a00bec45adbd/tumblr_pw9859VfCE1xbgu08o6_100.gif)
+   ![image alt](https://github.com/Americxne-101/Americxne-101/blob/2a4ac8774842ede9166ba91a394b144bb13b9bc7/d12bccebe5784f19b7a7fc106d367566.gif)
 
 
-
+I love writing and reading fanfics !! send me some if u have plss ^^
 
 
  i encorage c+h , unless said other wise ! you'll either find me sitting by myself or with Dragon Plays!
