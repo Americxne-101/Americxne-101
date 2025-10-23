@@ -39,3 +39,4 @@ guys .. i think ..
 
   *awww you stayed! thanks for reading!*
 ![image alt](https://github.com/Americxne-101/Americxne-101/blob/9c8e8d238fa78ebdb26ca8959743088a877b0b9a/Untitled434_20251011104247.png) ![image alt](https://github.com/Americxne-101/Americxne-101/blob/b7352ac3ee75ccdfb6447686f20dfb7e6732a7a7/230222.png) _*i ask myself what am i doing here ?*
+![image alt]([![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fgzaen3aqud3mprfvmovu2ivxi&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=ff00ff)](https://github.com/kittinan/spotify-github-profile))
