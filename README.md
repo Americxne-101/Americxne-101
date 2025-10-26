@@ -9,5 +9,28 @@
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 #
 ![image alt](https://github.com/Americxne-101/Americxne-101/blob/0779b79da45fd456ca911389308ed2cee5b56a7c/Untitled463_20251025122515.png)
+
+![image alt](https://github.com/Americxne-101/Americxne-101/blob/e277bb3184bff78342cf373d217c8112bc52697e/27dec195678b1ae66056615064201de5.gif)
+        im a sakura miku-aholic. _i fucking love sakura miku_
