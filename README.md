@@ -1,4 +1,12 @@
 ![image alt](https://github.com/Americxne-101/Americxne-101/blob/0779b79da45fd456ca911389308ed2cee5b56a7c/Untitled463_20251025122515.png)
+
+
+! ⺀ 𑁍————————— . 🌸 . —————————"ᰍ 
+
+
+   ![image alt](https://github.com/Americxne-101/Americxne-101/blob/aff4fe8aaa8e2126daa7eccc25102e112b996cae/Untitled465_20251025215210.png)
+
+
 ![image alt](https://github.com/Americxne-101/Americxne-101/blob/15555b5216befd494563e15aaa2af5bdaeea1890/f4a7820998674fec96e5fd4db7beefa3.gif)
      ![image alt](https://hits.sh/github.com/Americxne-101/Petals.svg?style=flat-square&label=Petals&extraCount=250&color=c681b9&labelColor=d0cae4)
     ⺀ 𑁍 𑁍 𑁍 𑁍 𑁍 𑁍 𑁍 𑁍 𑁍 𑁍 
