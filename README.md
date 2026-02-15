@@ -1,1 +1,1 @@
-
+![image alt](https://github.com/Americxne-101/Americxne-101/blob/635a3d5855e3ee2d45fd7fc9a3d6f2182bf520cc/Untitled807_20260215100128.png)![image alt](https://github.com/Americxne-101/Americxne-101/blob/635a3d5855e3ee2d45fd7fc9a3d6f2182bf520cc/Untitled808_20260215100419.png)![image alt](https://github.com/Americxne-101/Americxne-101/blob/635a3d5855e3ee2d45fd7fc9a3d6f2182bf520cc/Untitled807_20260215100130.png)
