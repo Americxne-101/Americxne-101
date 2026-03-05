@@ -1,3 +1,5 @@
+<p align="center">(^_-)˙⊹ര́  ̬꤮ ̗  ̗</p>
+
 #
 ![image](https://i.imgur.com/aSp3nn0.gif)
 <p align="center">RORY</p>
