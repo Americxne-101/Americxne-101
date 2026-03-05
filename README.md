@@ -1,4 +1,5 @@
 #
+![image](https://i.imgur.com/aSp3nn0.gif)
 <p align="center">RORY</p>
 
 ![image alt](https://github.com/Americxne-101/Americxne-101/blob/efb9bfa0247bd2ab012eb7de8efb0d46800be737/yx1avxi5j6of1.gif)
