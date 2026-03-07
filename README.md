@@ -1,5 +1,5 @@
 <p align="center">
-HeLLOII STINKIYYY
+HeLLOII !!! STINKIY
 
   
 <p align="center">
@@ -7,19 +7,19 @@ HeLLOII STINKIYYY
 ![image](https://i.imgur.com/aSp3nn0.gif)
 !
 ![Image](https://github.com/user-attachments/assets/184e0a1c-233e-4b46-9582-8388664d653b) 
-LAZAR
+**LAZAR** (more pref)
 
 
 <p align="center">
   
 ![Image](https://github.com/user-attachments/assets/184e0a1c-233e-4b46-9582-8388664d653b) 
-TEM
+**TEM**
 
 
 <p align="center">
   
 ![Image](https://github.com/user-attachments/assets/184e0a1c-233e-4b46-9582-8388664d653b) 
-IVANN
+**IVANN**
 
 
 
