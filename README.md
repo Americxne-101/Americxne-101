@@ -58,6 +58,8 @@ HeLLOII !!! STINKIY
   
   ![image alt](https://github.com/Americxne-101/Americxne-101/blob/99b95f4a9d6dde1b8a03260a79aa495781adf32e/24796071.gif)***BAIII BYe*** 
 
+  (animation is NOT mine !! creds to @sillyignition on yt!!)
+
     
 
 
