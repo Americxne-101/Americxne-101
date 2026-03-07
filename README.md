@@ -1,19 +1,20 @@
-<p align="center">(^_-)˙⊹ര́  ̬꤮ ̗  ̗</p>
+<p align="center">HRLLOOO
 
 #
 ![image](https://i.imgur.com/aSp3nn0.gif)
-<p align="center">RORY</p>
+<p align="center">LAZAR
 
-![image alt](https://github.com/Americxne-101/Americxne-101/blob/efb9bfa0247bd2ab012eb7de8efb0d46800be737/yx1avxi5j6of1.gif)
 
-<p align="center">TEM</p>
 
-![image alt](https://github.com/Americxne-101/Americxne-101/blob/2e0006d6b927af995844910658fabd14d09462ad/eog5syi5j6of1.gif)
+<p align="center">TEM
+
+
+<p align="center">IVANN
+
+
 # 
-![image alt](https://github.com/Americxne-101/Americxne-101/blob/aa188d857011523fb62bfb03d68d9db521926add/24a45edaa642f7dc703a2c79d101a59a.jpg)
-<p align="center">hello!! im Rory / tem . ! (sp info here) 
-basic dni criteria 
-always feel free to int . ! but alway iwc
-</p>
-<p align="center">ᥲpril 15 bday</p>
 
+<p align="center">hello!! ︵ GRAHH i'm lazar , ivann , temmy or spritz ! -- i'm mostly not on but i'll always play when i have free time from school! Dni to basic dni  . BMF!! Heavily encouraged c+h uhhh an I follow back and it's reccomended to whisper Yaa I think everyone is cool just PLS don't pmo ok 
+<p align="center">ᥲpril 15 bday
+  
+![image](https://i.imgur.com/aSp3nn0.gif)
