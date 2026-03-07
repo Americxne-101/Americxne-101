@@ -1,6 +1,6 @@
-<p align="center">HRLLOOO
-
+HeLLOII STINKIYYY
 #
+  
 ![image](https://i.imgur.com/aSp3nn0.gif)
 <p align="center">LAZAR
 
@@ -14,7 +14,25 @@
 
 # 
 
-<p align="center">hello!! ︵ GRAHH i'm lazar , ivann , temmy or spritz ! -- i'm mostly not on but i'll always play when i have free time from school! Dni to basic dni  . BMF!! Heavily encouraged c+h uhhh an I follow back and it's reccomended to whisper Yaa I think everyone is cool just PLS don't pmo ok 
+<p align="center">hello!! ︵ GRAHH i'm lazar , ivann , temmy or spritz ! -- i'm mostly not on but i'll always play when i have free time from school! Dni to basic dni  . BMF!! encouraged c+h uhhh an I follow back an Yaa I think everyone is cool just PLS don't pmo ok 
 <p align="center">ᥲpril 15 bday
+<p align="center">o really love to draw and animate i also take requests on my straw WHICH is being RENOVATED!!!! ⚠️ ⚠️ ⚠️ don't click on the one my prof pls its rlly bad
+
   
 ![image](https://i.imgur.com/aSp3nn0.gif)
+#
+  <img align="center" width="500" src="https://gifcity.carrd.co/assets/images/gallery46/d67e5561.gif?v=e3c0bc0f">
+    <br/>
+    <p align="center">Ivan kin
+    <p align="center">jolteon kin
+    <p align="center">stocking kin
+    <p align="center">Dr. Sylveon kin
+    <p align="center">Ash Ketchum kin
+    <p align="center">Yatta kin
+
+
+
+    
+
+
+
