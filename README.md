@@ -31,8 +31,7 @@ HeLLOII STINKIYYY
     <p align="center">Ash Ketchum kin
     <p align="center">Yatta kin
 
-  
-![image](https://i.imgur.com/aSp3nn0.gif)
+  <img align="center" width="500" src="https://gifcity.carrd.co/assets/images/gallery46/d67e5561.gif?v=e3c0bc0f">
 
 
     
