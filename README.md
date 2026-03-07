@@ -1,3 +1,4 @@
+<p align="center">
 HeLLOII STINKIYYY
 #
   
@@ -30,6 +31,8 @@ HeLLOII STINKIYYY
     <p align="center">Ash Ketchum kin
     <p align="center">Yatta kin
 
+  
+![image](https://i.imgur.com/aSp3nn0.gif)
 
 
     
