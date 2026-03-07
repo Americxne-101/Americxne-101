@@ -37,7 +37,8 @@ HeLLOII !!! STINKIY
 <p align="center">ᥲpril 15 bday
 <p align="center">o really love to draw and animate i also take requests on my straw WHICH is being RENOVATED!!!! ⚠️ ⚠️ ⚠️ don't click on the one my prof pls its rlly bad
 
-  
+![image alt](https://private-user-images.githubusercontent.com/265870110/558880621-9de71db0-5ad6-438d-8310-9296f6da37fb.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzI5MTQ2MTgsIm5iZiI6MTc3MjkxNDMxOCwicGF0aCI6Ii8yNjU4NzAxMTAvNTU4ODgwNjIxLTlkZTcxZGIwLTVhZDYtNDM4ZC04MzEwLTkyOTZmNmRhMzdmYi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMzA3JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDMwN1QyMDExNThaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0yNmQ1ODg3MGFiOTZjNTkyMTkwNjZhNTU1NDdiNmNlODcxYzZlNzNmOTAxZDU5YWIwYjZjZDhhNWEyZThjYmU0JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.K2w-xxKgdOcy8Y02tORuoNEGkVR-DLUh578hCsn1z8A)
+
 ![image](https://i.imgur.com/aSp3nn0.gif)
 #
   <img align="center" width="500" src="https://gifcity.carrd.co/assets/images/gallery46/d67e5561.gif?v=e3c0bc0f">
