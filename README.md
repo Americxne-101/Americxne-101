@@ -29,6 +29,7 @@ HeLLOII !!! STINKIY
 
 
 
+
 # 
 
 ![Image](https://github.com/user-attachments/assets/6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f) ![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)
@@ -50,6 +51,12 @@ HeLLOII !!! STINKIY
 
   <img align="center" width="500" src="https://gifcity.carrd.co/assets/images/gallery46/d67e5561.gif?v=e3c0bc0f">
 
+#
+<img width="400" height="47" alt="Image" src="https://github.com/user-attachments/assets/5cf37c23-f96c-4090-8320-82d6a7da19af" />
+
+<p align="center">
+  
+  ![image alt](https://github.com/Americxne-101/Americxne-101/blob/99b95f4a9d6dde1b8a03260a79aa495781adf32e/24796071.gif)***BAIII BYe*** 
 
     
 
