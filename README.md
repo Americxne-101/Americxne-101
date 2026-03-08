@@ -57,9 +57,9 @@ HeLLOII !!! STINKIY
 
 <p align="center">
   
-  ![image alt](https://github.com/Americxne-101/Americxne-101/blob/99b95f4a9d6dde1b8a03260a79aa495781adf32e/24796071.gif)***BAIII BYe*** 
+  ![image alt](https://github.com/Americxne-101/Americxne-101/blob/222e7b9501a6f641d070e2c636fc88ca1e609d33/unnamed.png)***BAIII BYe*** 
 
-  (animation is NOT mine !! creds to @sillyignition on yt!!)
+  (art is NOT mine !! creds to @sillyignition on yt!!)
 
     
 
