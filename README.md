@@ -2,10 +2,10 @@
 
 <p align="center">
   
-  [pinterest](https://Pinterest.com/NotAnge_l)
+ [pinterest](https://Pinterest.com/NotAnge_l)
     
 <p align="center">
-  
+
   [atabook](https://americxne101.atabook.org/)
 
 
