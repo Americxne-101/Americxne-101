@@ -1,3 +1,4 @@
+![](https://i.postimg.cc/ydnjvp65/boy-i-die-gif.gif)
 
 [youtube](https://www.youtube.com/@Amerixne101)
 ㅤ[strawpage](https://stockingaanarchy.straw.page)
