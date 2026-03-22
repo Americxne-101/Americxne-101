@@ -1,6 +1,6 @@
-![](https://i.postimg.cc/ydnjvp65/boy-i-die-gif.gif)
+![](https://github.com/Americxne-101/Americxne-101/blob/a288274b9ea9545376b5f5e670460db9ae8d89be/i-love-object-shows.gif)
 
-![](https://github.com/Americxne-101/Americxne-101/blob/f7f6da9d0eebe6c8d478b7bb565c5ffe618a1cb7/Untitled898_20260320203633.png)
+![](https://github.com/Americxne-101/Americxne-101/blob/c8c088bdba5743f25565d2871f8311e494d10b28/Untitled904_20260322152941.png)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[youtube](https://www.youtube.com/@Amerixnnnee.101)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://stockingaanarchy.straw.page)
 ㅤ
