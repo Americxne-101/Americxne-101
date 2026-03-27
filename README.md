@@ -1,7 +1,6 @@
-![](https://github.com/Americxne-101/Americxne-101/blob/a288274b9ea9545376b5f5e670460db9ae8d89be/i-love-object-shows.gif)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=17&pause=100&color=49ADE9&center=true&width=435&lines=Love+%3F+Thats+useless.+;Everything+is+just+greed.;If+you+throw+a+stone%2C;Then+you're+a+'hero'!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=ED4569&center=true&vCenter=true&width=435&lines=Rally+to+me%2C+my+fellow+cookies!)](https://git.io/typing-svg)
 
-![](https://github.com/Americxne-101/Americxne-101/blob/c8c088bdba5743f25565d2871f8311e494d10b28/Untitled904_20260322152941.png)
+![](https://github.com/Americxne-101/Americxne-101/blob/da360ae71928ce310e5d0999adbb4bc461ff0faa/1749553824623-yd47f5.gif)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[youtube](https://www.youtube.com/@Amerixnnnee.101)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://stockingaanarchy.straw.page)
 ㅤ
