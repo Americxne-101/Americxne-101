@@ -4,5 +4,5 @@
 
 ${\textsf{\color{#BA9CB7}@dragonpñays-forsaken and @bl0omington}}$
 ㅤㅤㅤㅤㅤ
-${\textsf{\color{#BA9CB7}are best friendss!}}$
+${\textsf{\color{#969DBB}are best friendss!}}$
 
