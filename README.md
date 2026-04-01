@@ -1,8 +1,9 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=C8C4BD&center=true&vCenter=true&width=435&lines=candy+cAnDY+foRR%2C+all!!)](https://git.io/typing-svg)
-
-![](https://github.com/Americxne-101/Americxne-101/blob/0586910165b0bee8a1ca6231c1ab5fcc5a99c281/Untitled911_20260327201925.png)
-
-${\textsf{\color{#BA9CB7}@dragonplays-forsaken and @bl0omington}}$
-ㅤㅤㅤㅤㅤ
-${\textsf{\color{#969DBB}are best friendss!}}$
-
+![](https://github.com/Americxne-101/Americxne-101/blob/19423a0e73f95cb247b4a71b4d194cb4604fbda6/Untitled918_20260401101110.png)
+![](https://github.com/Americxne-101/Americxne-101/blob/19423a0e73f95cb247b4a71b4d194cb4604fbda6/Untitled930_20260401100853.png)
+![](https://github.com/Americxne-101/Americxne-101/blob/2820c2326005d67872020fc73a6811bbdcf8afbd/Untitled918_20260401101801.png)
+#
+![](https://github.com/Americxne-101/Americxne-101/blob/d553f0a07f8870450f5a311da196611b0a3d0623/zfgtux.gif)
+![](https://github.com/Americxne-101/Americxne-101/blob/d553f0a07f8870450f5a311da196611b0a3d0623/pnb4cp.gif)
+![](https://github.com/Americxne-101/Americxne-101/blob/d553f0a07f8870450f5a311da196611b0a3d0623/jlvm38.gif)
+![](https://github.com/Americxne-101/Americxne-101/blob/d553f0a07f8870450f5a311da196611b0a3d0623/49a3w6.gif)
+#
