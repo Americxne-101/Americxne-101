@@ -1,9 +1,2 @@
-![](https://github.com/Americxne-101/Americxne-101/blob/19423a0e73f95cb247b4a71b4d194cb4604fbda6/Untitled918_20260401101110.png)
-![](https://github.com/Americxne-101/Americxne-101/blob/19423a0e73f95cb247b4a71b4d194cb4604fbda6/Untitled930_20260401100853.png)
-![](https://github.com/Americxne-101/Americxne-101/blob/2820c2326005d67872020fc73a6811bbdcf8afbd/Untitled918_20260401101801.png)
-#
-![](https://github.com/Americxne-101/Americxne-101/blob/d553f0a07f8870450f5a311da196611b0a3d0623/zfgtux.gif)
-![](https://github.com/Americxne-101/Americxne-101/blob/d553f0a07f8870450f5a311da196611b0a3d0623/pnb4cp.gif)
-![](https://github.com/Americxne-101/Americxne-101/blob/d553f0a07f8870450f5a311da196611b0a3d0623/jlvm38.gif)
-![](https://github.com/Americxne-101/Americxne-101/blob/d553f0a07f8870450f5a311da196611b0a3d0623/49a3w6.gif)
+![](https://github.com/Americxne-101/Americxne-101/blob/c4225066910d7aec19131a3ac9e5e183f91a724d/Untitled931_20260402183127.png)
 #
