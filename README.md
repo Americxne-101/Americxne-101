@@ -4,4 +4,5 @@
 
 #
 
-![](https://github.com/Americxne-101/Americxne-101/blob/b5fc77bcead548cd3c541cd982d8c07d3029a8af/tumblr_28f041174cb26a94781ecfb5fb113aa4_45c0d73b_75.gif) heya! im sean! (or dev mostly) read straw byi!
+![](https://github.com/Americxne-101/Americxne-101/blob/b5fc77bcead548cd3c541cd982d8c07d3029a8af/tumblr_28f041174cb26a94781ecfb5fb113aa4_45c0d73b_75.gif) $${\color{#EB9AB2}heya! \ im \ sean!\ (mostly dev) \ read \ strawpage\ byi  \ or \ byf \}$$
+
