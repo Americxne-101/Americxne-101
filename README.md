@@ -3,6 +3,8 @@
 [sev / d3rlord3](https://github.com/ravensev)ㅤㅤ![](https://github.com/Americxne-101/Americxne-101/blob/3c9a374536c950ffabd44bdf65ac975cd192197f/tumblr_e60404930137aaaa062eb8783183def9_20dc6408_75.gif)ㅤㅤ[dragon / chance ♡](https://github.com/dragonplays-forsaken)
 
 #
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![](https://github.com/Americxne-101/Americxne-101/blob/b5fc77bcead548cd3c541cd982d8c07d3029a8af/tumblr_28f041174cb26a94781ecfb5fb113aa4_45c0d73b_75.gif) 
 
-![](https://github.com/Americxne-101/Americxne-101/blob/b5fc77bcead548cd3c541cd982d8c07d3029a8af/tumblr_28f041174cb26a94781ecfb5fb113aa4_45c0d73b_75.gif) $${\color{#EB9AB2}heya! \ im \ sean!\ (mostly dev) \ read \ strawpage\ byi  \ or \ byf \}$$
+$${\color{#EB9AB2}heya! \ im \ sean!\ (mostly dev) \ read \ strawpage\ byi  \ or \ byf \}$$
 
