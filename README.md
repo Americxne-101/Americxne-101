@@ -8,4 +8,4 @@
 
 $${\color{#EB9AB2}heya! \ im \ sean!\ (mostly dev) \ read \ strawpage\ byi  \ or \ byf \}$$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-![](https://github.com/Americxne-101/Americxne-101/blob/b5fc77bcead548cd3c541cd982d8c07d3029a8af/18a27528f963c75298c7463e138c08e1042c12c6.gifv.gif)ㅤㅤㅤart cred to @panwancake on pin!
+![](https://github.com/Americxne-101/Americxne-101/blob/b5fc77bcead548cd3c541cd982d8c07d3029a8af/18a27528f963c75298c7463e138c08e1042c12c6.gifv.gif)ㅤㅤㅤart cred to @firo_u on pin!
